@@ -1,1 +1,1 @@
-Hi Im JT
+Hi Im JT and Im an electrical engineer
